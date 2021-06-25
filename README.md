@@ -1,5 +1,5 @@
  # Javed Shaikh
-- ### AWS Re/Start
+ ### AWS Re/Start 
 - 👀 I’m interested to work in AWS 
 - 🌱 I’m currently learning  <a href="https://aws.amazon.com/training/restart/">Cloud Practicioner</a>
 
