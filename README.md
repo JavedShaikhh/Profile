@@ -7,7 +7,7 @@
 - follow me on - <a href="https://twitter.com/jshaikh1"> Javed Shaikh </a>
 
 <li class="has-line-data" data-line-start="12" data-line-end="14">✨Magic ✨</li>
-:shipit:
+🤙:
 
 
 <!---
