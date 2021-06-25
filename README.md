@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  <a href="https://aws.amazon.com/training/restart/">Cloud Practicioner</a>
 
 - 📫 jshaikh@hotmail.co.uk 
-- <a href="https://linkedin.com/in/javed-shaikh-38a7974a/">Javed Shaikh</a>
+- view me @ <a href="https://linkedin.com/in/javed-shaikh-38a7974a/">Javed Shaikh</a>
 - follow me on - <a href="https://twitter.com/jshaikh1"> Javed Shaikh </a>
 
 <!---
