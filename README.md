@@ -80,6 +80,15 @@ members.
 As Corporate Sales Manager for a year, I led a corporate sales team of 4 assistants. Reporting directly to the CEO, my primary focus was on visibility and availability of the product. Responsibilities also included corporate deals with the convenience stores and corporate customers. Developed departmental procedures and sales strategies.
 
 
+QUALIFICATIONS
+- Diploma (SCM) PIM Pakistan Institute of Management   December 2000. Grade B 74 % 
+- MBA (Mkting) IBA Institute of Business Administration. May 2000. CGPA 3.25
+- BBA IBA Institute of Business Administration. May 1998.  CGPA 2.45
+ 
+      IBA, based in Karachi, is the leading Business School in Pakistan offering business education
+      PIM was established by the Government of Pakistan to promote management development in the country
+
+
 <!---
 javedahmed78/javedahmed78 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
