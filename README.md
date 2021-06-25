@@ -45,7 +45,8 @@ cities with B2B partners and attendance of 100+ all stations
     Manager Operations and Product Manager, my focus and responsibilities include the smooth business operations and product development. Contracting, allocation and product distinction are the primary concerns in my portfolio, smooth operations, ground handling and rate negotiation are the inclusions. My job responsibilities are:
 - Heading the operations team with reservations, ground handling, visas.
 - Group queries, handling the group operations reservations, meeting, MICE.
-- Partnership with hotels and agents by building the bridge between client and supplier.  Working inline with the suppliers for product development.
+- Partnership with hotels and agents by building the bridge between client and supplier.
+- Working inline with the suppliers for product development.
 - Contracting, Rate negotiations, allocations are being main responsibilities of job.
 - Channel Partners B2B customers are also in my portfolio.
 
