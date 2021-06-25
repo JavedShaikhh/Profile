@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Javed_Shaikh
+- 👋 Hi, I’m Javed Shaikh
 - 👀 I’m interested to work in AWS 
 - 🌱 I’m currently learning AWS re/Start
-- 💞️ I’m looking to collaborate on ...
+
 - 📫 How to reach me ... email jshaikh@hotmail.co.uk
 
 <!---
