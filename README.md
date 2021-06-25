@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Javed Shaikh
 - 👀 I’m interested to work in AWS 
-- 🌱 I’m currently learning https://aws.amazon.com/training/restart/
+- 🌱 I’m currently learning  <a href="https://aws.amazon.com/training/restart/">Cloud Practicioner</a>
 
 - 📫 jshaikh@hotmail.co.uk 
 - https://www.linkedin.com/in/javed-shaikh-38a7974a/
