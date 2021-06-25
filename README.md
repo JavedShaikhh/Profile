@@ -26,7 +26,7 @@
 
 #### Experience 
 ##### General Manager              Magic Tours Dubai  “Local  DMC promoting Inbound”.     Nov 2016- Aug 2020 
-            General Manager, my scope of responsibilities increased and I have extended to overlook all departments across the board; UAE Algeria and Pakistan were my portfolio to overlook. Responsibilities include Marketing, Accounts, Finance, Human Resource, Reservations, Groups, Visas, and Sales
+    General Manager, my scope of responsibilities increased and I have extended to overlook all departments across the board; UAE Algeria and Pakistan were my portfolio to overlook. Responsibilities include Marketing, Accounts, Finance, Human Resource, Reservations, Groups, Visas, and Sales
 - Management: development and implementation of Business strategy Heading the branches Algeria, Pakistan and UAE.
 - Sales and MarketingQuality of trips of company performance Sales Calls and meetings with Partners Pakistan, South Africa, Algeria
 - Establish and maintain an effective marketing and sales strategy Monitoring and reporting
@@ -42,7 +42,7 @@ cities with B2B partners and attendance of 100+ all stations
 - Operations Ground Handling, Transport, Tours and customer support guidelines to team for managing.
 
 ##### Product Manager / Operations Manager     Magic Tours Dubai “Local DMC promoting Inbound”.      May 2011- Nov 2016 
-Manager Operations and Product Manager, my focus and responsibilities include the smooth business operations and product development. Contracting, allocation and product distinction are the primary concerns in my portfolio, smooth operations, ground handling and rate negotiation are the inclusions. My job responsibilities are:
+    Manager Operations and Product Manager, my focus and responsibilities include the smooth business operations and product development. Contracting, allocation and product distinction are the primary concerns in my portfolio, smooth operations, ground handling and rate negotiation are the inclusions. My job responsibilities are:
 - Heading the operations team with reservations, ground handling, visas.
 - Group queries, handling the group operations reservations, meeting, MICE.
 - Partnership with hotels and agents by building the bridge between client and supplier.  Working inline with the suppliers for product development.
@@ -50,7 +50,7 @@ Manager Operations and Product Manager, my focus and responsibilities include th
 - Channel Partners B2B customers are also in my portfolio.
 
 #### Restaurant General Manager Papa Johns Pizza GB Limited UK “Corporate Store” (The pizza making restaurant).              June 2006 – May 2011 
-Being RGM, my responsibilities include carrying our store operations with business development and capturing the opportunity, it also involve training and development of store team to make sure standards are being followed. Local store marketing, recruitment and selection. Financial aspects of store operations are also being monitored, to make sure the profitability of the store can be achieved.
+    Being RGM, my responsibilities include carrying our store operations with business development and capturing the opportunity, it also involve training and development of store team to make sure standards are being followed. Local store marketing, recruitment and selection. Financial aspects of store operations are also being monitored, to make sure the profitability of the store can be achieved.
 - Operational management: Ensuring and coordinate with store team, daily business operations, inventory management wastage stock control. And involvement of store team in business operations with sense of ownership and responsibility towards healthy business.
 - Financial management: planning and working to budgets, maximizing profits and achieving the sets sales targets, with control over labor, food, and expenditures for maximizing the profit.
 - People management: training and developing existing and new staff, motivating and encouraging staff to help achieve targets with self hands on work, and working with them together as team.
@@ -59,15 +59,13 @@ Being RGM, my responsibilities include carrying our store operations with busine
 - Implementing, and instilling in teams, company policies, procedures, ethics, etc.
 
 #### Duty Manager “Barista” (Part Time).     Costa Coffee “East Croydon”.      December 2006 November2007
-
-
 - Managing and running the smooth operations during the shift.
 - Supervising and coordinating activities among team members
 - Working together with all team members for routine problem solving, customer complaints and Customer
 Services, to ensure customers satisfaction with brand image.
 
 #### Manager Export / Manager Corporate Sales      Hilal Group of Companies (Leading Confectionery Manufacturers in Pakistan).       January 2001 – March 2006
-                  Reporting directly to the CEO, responsibilities and achievements in exporting included:
+    Reporting directly to the CEO, responsibilities and achievements in exporting included:
 - Developed new markets in 14 countries and managed existing markets in 3 countries
 - Experience of operating and know buying patterns in Europe, Americas, Fareast Asia, Middle East and few parts of Africa.
 - Organizedandparticipatinginoverseastradeexhibitionsandbusinessmeetings
