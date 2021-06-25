@@ -75,9 +75,11 @@ Services, to ensure customers satisfaction with brand image.
 - Managedlogistics,suchasshipping,forwardingandcustomsclearance.
 - Product positioning, price negotiations, product development and collating market feedback.
 - Gainedknowledgeofimportersofconfectioneryaroundtheworld.
-- Appointed as head of department, responsible for preparing market strategies and leading a team of 5
-members.
-As Corporate Sales Manager for a year, I led a corporate sales team of 4 assistants. Reporting directly to the CEO, my primary focus was on visibility and availability of the product. Responsibilities also included corporate deals with the convenience stores and corporate customers. Developed departmental procedures and sales strategies.
+- Appointed as head of department, responsible for preparing market strategies and leading a team of 5 members.
+- As Corporate Sales Manager for a year, I led a corporate sales team of 4 assistants. 
+- Reporting directly to the CEO, my primary focus was on visibility and availability of the product. 
+- Responsibilities also included corporate deals with the convenience stores and corporate customers. 
+- Developed departmental procedures and sales strategies.
 
 
 QUALIFICATIONS
@@ -88,6 +90,28 @@ QUALIFICATIONS
       IBA, based in Karachi, is the leading Business School in Pakistan offering business education
       PIM was established by the Government of Pakistan to promote management development in the country
 
+#### SKILLS
+- Communication: able to collate complex requirements in a way that both commercial and technical staff can understand; clear and concise report writing style; excellent presentation skills with experience of delivering presentations to senior managers
+- Computer literate: MS Windows and Office software
+- Confident and Decisive: able to challenge assumptions and have the influencing skills to get agreement to
+my recommendations
+- Creative: tempered with commercial awareness, able to devise innovative solutions needed to drive
+businesses forward.
+- Financial management: experience of managing marketing budgets.
+- Flexible: able to work across organizational boundaries and develop constructive relationships with
+internal and external stakeholders
+- Leadership: Inclusive and participative approach to work and a natural consultative style; strong conflict
+resolution skills, with experience of addressing entrenched opinions by colleagues; demonstrable cultural
+sensitivity and understanding of equal opportunities
+- Negotiation: experience of closing deals and contract negotiation
+- Self Starter: able to take a new project from inception to completion
+- Team player: excellent inter-personal skills to engage with colleagues from diverse backgrounds
+- Time Management: able to priorities tasks and work effectively.
+
+#### EXTRA CURRICULAR ACTIVITIES
+- Organizeroffunctionsdebatesandotherrecreationalactivities.  Computers/Internet/movies/music
+- Playing indoor games (Badminton)
+- Traveling.
 
 <!---
 javedahmed78/javedahmed78 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
